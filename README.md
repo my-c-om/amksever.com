@@ -1,1 +1,1 @@
-# amkyaw-social
+# amkyaw.com
